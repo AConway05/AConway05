@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AConway05
+- 👋 Hi, I’m Alina!
 - 👀 I love painting and all things ancient history
 - 🌱 I’m currently learning web design
 - 💞️ I’m looking to collaborate on assignments
